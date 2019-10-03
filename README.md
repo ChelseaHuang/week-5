@@ -1,9 +1,6 @@
 # week-5
 
-### Website's goal
-#### website's goal for myself
-
-#### website's goal for my audience
+#### Website's goal:Introduce myself briefly and demonstrate my personal traits
 
 #### First impression
 
