@@ -2,7 +2,7 @@
 
 #### website's goal:Introduce myself briefly and demonstrate my personal traits
 
-#### first impression: I like the first page but the rest page seems a little plain
+#### first impression: I like the first page but the rest pages seem a little plain
 
 #### Wording is clear and crisp
 
