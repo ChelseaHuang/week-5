@@ -1,6 +1,9 @@
 # week-5
 
 #### Website's goal
+### website's goal for myself
+
+### website's goal for my audience
 
 #### First impression
 
