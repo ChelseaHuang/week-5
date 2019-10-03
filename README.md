@@ -6,7 +6,7 @@
 
 #### Asthetics is authentic and original
 
-#### I like the first page but the rest pages seem a little plain
+#### I like the first page but the rest seem a little plain
 
 #### Mobile version does not work well and needs to be revised 
 
